@@ -1,5 +1,5 @@
 I
-dislike
+like
 icecream
 and 
 hamburgers
