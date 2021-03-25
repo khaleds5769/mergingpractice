@@ -1,5 +1,5 @@
 I
-love
+admire
 icecream
 and 
 hamburgers
