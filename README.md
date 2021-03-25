@@ -1,1 +1,5 @@
-# mergingpractice
+I
+like
+icecream
+and 
+pizza
